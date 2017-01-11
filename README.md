@@ -1,1 +1,2 @@
 # mappingOurLives
+# jamessecor.github.io
